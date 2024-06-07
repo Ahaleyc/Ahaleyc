@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ahaleyc
 - 👀 I’m a designer
-- 🌱 I’m currently learning code
+- 🌱 I’m currently learning new a bf
 - 💞️ I’m looking for a bf
 - 📫 How to reach me 
 - 😄 zhihu.com/people/ban-mian-19
