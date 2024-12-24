@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Ahaleyc
 - 👀 I’m a designer
-- 🌱 I’m currently learning new a bf
+- 🌱 I’m currently learning new a object
